@@ -1,1 +1,2 @@
+![Uploading しょーんアイコン○.png…]()
 # omikuji
